@@ -34,6 +34,6 @@
 
      ### Sugestão
 
-     Para acompanhar toma uma Coca Cola bem gelada com gelo e limão. :tropical_drink:
+     Para acompanhar tomar uma Coca Cola bem gelada com gelo e limão. :tropical_drink:
 
   
